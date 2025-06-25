@@ -1,0 +1,2 @@
+# SuperMago.github.io
+PidoPerdónDeLaÚnicaFormaQueSé
